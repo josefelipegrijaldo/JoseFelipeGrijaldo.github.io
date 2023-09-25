@@ -1,1 +1,0 @@
-# JoseFelipeGrijaldo.github.io
